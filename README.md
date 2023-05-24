@@ -1,2 +1,2 @@
-# Masivital-na-K-nd-Kwa-iti-K-tui-Ka-nd-
+# Masivitalí na Kũndũ Kwa Úiti Kítui Kaũndí
 Healthcare facilities
